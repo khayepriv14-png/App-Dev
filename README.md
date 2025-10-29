@@ -7,7 +7,7 @@
 **Release Year:** 2004  
 **Directed by:** Keenen Ivory Wayans  
 
-*White Chicks* is a hilarious comedy about two FBI agents who go undercover as white socialite sisters to solve a kidnapping case. The film is full of outrageous humor, mistaken identities, and unforgettable quotes.
+*White Chicks* is a hilarious comedy about two FBI agents who go undercover as white socialite sisters to solve a kidnapping case. The film is full of humor, mistaken identities, and unforgettable quotes.
 
 ---
 
@@ -22,7 +22,7 @@
 ---
 
 ## Favorite Scene
-> “Yo, hold my poodle! HOLD MY POODLE!”
+> “Yo mama so old you breastfeed like this 💨”
 
 This scene never fails to make me laugh — it perfectly captures the ridiculous and over-the-top humor that defines the movie.
 
@@ -37,7 +37,7 @@ This scene never fails to make me laugh — it perfectly captures the ridiculous
 ---
 
 ## Rating
-**My Rating:** ★★★★☆ (4.5/5)  
+**My Rating:** ★★★★★ (5/5)  
 Because it’s the perfect comfort movie for when I need a laugh!
 
 ---
@@ -47,4 +47,4 @@ The song **“A Thousand Miles” by Vanessa Carlton** became one of the movie�
 
 ---
 
-> *“I’m gonna have a BF — a B***h Fit!”* 😆
+> *“I'm so f*cking pissed!”* 😆
